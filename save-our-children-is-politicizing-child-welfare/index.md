@@ -18,7 +18,7 @@ Donald Trump authorized $35,000,000 of grants to combat human trafficking. A lot
 
 ### Now, let's clear up some common misconceptions.
 
-Trump's administration has made many arrests for human trafficking, but not that many more than his predecessors.
+Trump's administration has made many arrests for human trafficking, but not many more than his predecessors.
 
 [https://www.factcheck.org/2020/08/viral-chart-distorts-human-trafficking-statistics/](https://www.factcheck.org/2020/08/viral-chart-distorts-human-trafficking-statistics/)
 
@@ -38,6 +38,6 @@ To this day, he continues to wish the best for Ghislaine Maxwell.
 
 [https://www.youtube.com/watch?v=rliXZhHjskM](https://www.youtube.com/watch?v=rliXZhHjskM)
 
-**This is a non-partisan issue. If the organization you are following is either politicizing child welfare, or conflating the issue with public health initiatives, please take a closer look at their agenda.**
+**This is a non-partisan issue. If the organization you are following is politicizing child welfare or conflating the issue with public health initiatives, please take a closer look at their agenda.**
 
 [https://www.nbcnews.com/tech/tech-news/qanon-looms-behind-nationwide-rallies-viral-hashtags-n1237722](https://www.nbcnews.com/tech/tech-news/qanon-looms-behind-nationwide-rallies-viral-hashtags-n1237722)
