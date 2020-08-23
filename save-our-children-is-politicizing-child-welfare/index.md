@@ -38,6 +38,12 @@ To this day, he continues to wish the best for Ghislaine Maxwell.
 
 [https://www.youtube.com/watch?v=rliXZhHjskM](https://www.youtube.com/watch?v=rliXZhHjskM)
 
+In contrast, Biden has no known connections with Epstein.
+
+[https://www.snopes.com/fact-check/joe-biden-island/](https://www.snopes.com/fact-check/joe-biden-island/)
+
+Yes, there are videos of Biden being creepy, just as there are videos of Trump being creepy. Both feature images and videos taken out of context. Sharing them only promotes the sexualization of children and is inexcusable.
+
 **This is a non-partisan issue. If the organization you are following is politicizing child welfare or conflating the issue with public health initiatives, please take a closer look at their agenda.**
 
 [https://www.nbcnews.com/tech/tech-news/qanon-looms-behind-nationwide-rallies-viral-hashtags-n1237722](https://www.nbcnews.com/tech/tech-news/qanon-looms-behind-nationwide-rallies-viral-hashtags-n1237722)
