@@ -12,3 +12,7 @@ Misinformation is circulating on social media. We need to stand up for truth.
 ### Valid Sources
 
 Use [AllSides](https://www.allsides.com/unbiased-balanced-news) to vet the source.
+
+### Posts
+
+- [/omnifact_web/save-our-children-is-politicizing-human-trafficking] #SaveOurChildren is Politicizing Human Trafficking
