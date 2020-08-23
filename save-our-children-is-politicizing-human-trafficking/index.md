@@ -1,4 +1,4 @@
-# #SaveOurChildren is Politicizing Human Trafficking
+## #SaveOurChildren is Politicizing Human Trafficking
 
 In order to #SaveTheChildren or #SaveOurChildren, it is imperitive that we don't fall victim to propaganda and use this important child welfare issue as political theater. Our children deserve so much more than that.
 
@@ -37,3 +37,5 @@ https://filmdaily.co/news/jeffrey-epstein-donald-trump/
 He continues to wish the best for Ghislaine Maxwell.
 
 https://www.youtube.com/watch?v=rliXZhHjskM
+
+**This is a non-partisan issue. If the organization you are following is either politicizing child welfare, or conflating the issue with public health initiatives, please take a closer look at their agenda.** 
