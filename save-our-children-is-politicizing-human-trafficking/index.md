@@ -10,32 +10,32 @@ Sexual abuse is rampant in Hollywood.
 
 Many powerful political figures from both parties, inluding Bill Clinton, are implicated in Epstein's operation.
 
-https://www.cnbc.com/2019/07/22/jeffrey-epsteins-black-book-trump-clintons-prince-andrew.html
+[https://www.cnbc.com/2019/07/22/jeffrey-epsteins-black-book-trump-clintons-prince-andrew.html](https://www.cnbc.com/2019/07/22/jeffrey-epsteins-black-book-trump-clintons-prince-andrew.html)
 
 Donald Trump authorized $35,000,000 of grants to combat human trafficking. A lot of great organizations received funding.
 
-https://apnews.com/89347d1b618ab522ec6d13aa114f4e92
+[https://apnews.com/89347d1b618ab522ec6d13aa114f4e92](https://apnews.com/89347d1b618ab522ec6d13aa114f4e92)
 
 ### Now, let's clear up some common misconceptions.
 
 Trump's administration has made many arrests for human trafficking, but not that many more than his predecessors.
 
-https://www.factcheck.org/2020/08/viral-chart-distorts-human-trafficking-statistics/
+[https://www.factcheck.org/2020/08/viral-chart-distorts-human-trafficking-statistics/](https://www.factcheck.org/2020/08/viral-chart-distorts-human-trafficking-statistics/)
 
 Progressives do not see pedophilia as a sexual orientation.
 
-https://www.usatoday.com/story/news/factcheck/2020/07/30/fact-check-clovergender-not-lgbtq-gender-sexual-identity/5504085002/
+[https://www.usatoday.com/story/news/factcheck/2020/07/30/fact-check-clovergender-not-lgbtq-gender-sexual-identity/5504085002/](https://www.usatoday.com/story/news/factcheck/2020/07/30/fact-check-clovergender-not-lgbtq-gender-sexual-identity/5504085002/)
 
 Wearing of masks does not make children more vulnerable. That's a naive take on how human trafficking works.
 
-https://pcaiowa.org/does-wearing-a-mask-make-children-more-vulnerable-to-sex-trafficking/
+[https://pcaiowa.org/does-wearing-a-mask-make-children-more-vulnerable-to-sex-trafficking/](https://pcaiowa.org/does-wearing-a-mask-make-children-more-vulnerable-to-sex-trafficking/)
 
 Donald Trump has also been implicated in the Epstein scandal, along with Alan Dershowitz. William Barr also has connections to Epstein.
 
-https://filmdaily.co/news/jeffrey-epstein-donald-trump/
+[https://filmdaily.co/news/jeffrey-epstein-donald-trump/](https://filmdaily.co/news/jeffrey-epstein-donald-trump/)
 
 He continues to wish the best for Ghislaine Maxwell.
 
-https://www.youtube.com/watch?v=rliXZhHjskM
+[https://www.youtube.com/watch?v=rliXZhHjskM](https://www.youtube.com/watch?v=rliXZhHjskM)
 
 **This is a non-partisan issue. If the organization you are following is either politicizing child welfare, or conflating the issue with public health initiatives, please take a closer look at their agenda.** 
