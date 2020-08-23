@@ -1,6 +1,6 @@
 # Welcome to Omnifact.
 
-Misinformation is circulating on social media. We need to stand up for truth. 
+Misinformation is circulating on social media. We need to stand up for truth.
 
 ### Rules of Engagement
 
@@ -15,4 +15,4 @@ Use [AllSides](https://www.allsides.com/unbiased-balanced-news) to vet the sourc
 
 ### Posts
 
-- [/omnifact_web/save-our-children-is-politicizing-human-trafficking] #SaveOurChildren is Politicizing Human Trafficking
+- [SaveOurChildren is Politicizing Human Trafficking](/omnifact_web/save-our-children-is-politicizing-human-trafficking/)
