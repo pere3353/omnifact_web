@@ -1,17 +1,20 @@
-# Welcome to Omnifact.
+**More and more people are succombing to disinformation campaigns on social media. Watching friends and family fall victim to this manipulation is heartbreaking.**
 
-Misinformation is circulating on social media. We need to stand up for truth.
+### Get Involved
+- Visit Github to create a new post, or modify one that's already in the catalog.
+- Use these posts to serve as a starting place for your outreach.
 
 ### Rules of Engagement
-
-- Be respectful
+- Be respectful.
+- Be concise.
 - Subjective statements should be kep to a minimum.
 - Objective claims needs to have a web citation.
 - Try to limit yourself to 1-2 sentences per citation.
+- Include a call-to-action if possible.
 
 ### Valid Sources
 
-Use [AllSides](https://www.allsides.com/unbiased-balanced-news) to vet the source.
+Use [AllSides](https://www.allsides.com/unbiased-balanced-news) to vet the source. Far-left or far-right sources should be avoided.
 
 ### Posts
 
