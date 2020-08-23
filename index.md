@@ -2,12 +2,12 @@
 
 ### Get Involved
 - Visit Github to create a new post, or modify one that's already in the catalog.
-- Use these posts to serve as a starting place for your outreach.
+- Use these posts to serve as a starting place for your outreach. Feel free to make changes. You're welcome to attribute the source, but it's not necessary.
 
 ### Rules of Engagement
 - Be respectful.
 - Be concise.
-- Subjective statements should be kep to a minimum.
+- Subjective statements should be kept to a minimum.
 - Objective claims needs to have a web citation.
 - Try to limit yourself to 1-2 sentences per citation.
 - Include a call-to-action if possible.
