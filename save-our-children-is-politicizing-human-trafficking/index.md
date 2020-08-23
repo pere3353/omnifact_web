@@ -38,4 +38,6 @@ He continues to wish the best for Ghislaine Maxwell.
 
 [https://www.youtube.com/watch?v=rliXZhHjskM](https://www.youtube.com/watch?v=rliXZhHjskM)
 
-**This is a non-partisan issue. If the organization you are following is either politicizing child welfare, or conflating the issue with public health initiatives, please take a closer look at their agenda.** 
+**This is a non-partisan issue. If the organization you are following is either politicizing child welfare, or conflating the issue with public health initiatives, please take a closer look at their agenda.**
+
+[https://www.nbcnews.com/tech/tech-news/qanon-looms-behind-nationwide-rallies-viral-hashtags-n1237722](https://www.nbcnews.com/tech/tech-news/qanon-looms-behind-nationwide-rallies-viral-hashtags-n1237722)
