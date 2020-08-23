@@ -30,11 +30,11 @@ Wearing of masks does not make children more vulnerable. That's a naive take on 
 
 [https://pcaiowa.org/does-wearing-a-mask-make-children-more-vulnerable-to-sex-trafficking/](https://pcaiowa.org/does-wearing-a-mask-make-children-more-vulnerable-to-sex-trafficking/)
 
-Donald Trump has also been implicated in the Epstein scandal, along with Alan Dershowitz. William Barr also has connections to Epstein.
+Donald Trump has also been implicated in the Epstein scandal, along with his personal lawyer Alan Dershowitz. William Barr also has connections to Epstein.
 
 [https://filmdaily.co/news/jeffrey-epstein-donald-trump/](https://filmdaily.co/news/jeffrey-epstein-donald-trump/)
 
-He continues to wish the best for Ghislaine Maxwell.
+To this day, he continues to wish the best for Ghislaine Maxwell.
 
 [https://www.youtube.com/watch?v=rliXZhHjskM](https://www.youtube.com/watch?v=rliXZhHjskM)
 
