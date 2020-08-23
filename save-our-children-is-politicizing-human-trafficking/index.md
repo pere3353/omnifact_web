@@ -6,7 +6,7 @@ In order to #SaveTheChildren or #SaveOurChildren, it is imperitive that we don't
 
 Sexual abuse is rampant in Hollywood.
 
-https://www.usatoday.com/story/life/people/2018/02/20/how-common-sexual-misconduct-hollywood/1083964001/
+(https://www.usatoday.com/story/life/people/2018/02/20/how-common-sexual-misconduct-hollywood/1083964001/)
 
 Many powerful political figures from both parties, inluding Bill Clinton, are implicated in Epstein's operation.
 
