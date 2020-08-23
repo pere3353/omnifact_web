@@ -1,3 +1,5 @@
+# #SaveOurChildren is Politicizing Human Trafficking
+
 In order to #SaveTheChildren or #SaveOurChildren, it is imperitive that we don't fall victim to propaganda and use this important child welfare issue as political theater. Our children deserve so much more than that.
 
 ### First, let's talk about what's real.
