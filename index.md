@@ -12,10 +12,7 @@ More and more people are succumbing to disinformation campaigns on social media.
 - Objective claims needs to have a web citation.
 - Try to limit yourself to 1-2 sentences per citation.
 - Include a call-to-action if possible.
-
-### Valid Sources
-
-Use [AllSides](https://www.allsides.com/unbiased-balanced-news) to vet the source. Far-left or far-right sources should be avoided.
+- Use [AllSides](https://www.allsides.com/unbiased-balanced-news) to vet your citations. Far-left or far-right sources should be avoided.
 
 ### Posts
 
