@@ -4,7 +4,7 @@ If you're looking for the front-end, it can be found at [OmniFact.org](https://o
 
 ### The Posting Process
 1. Fork the repo.
-2. Add a folder using the name of the desired slug.
+2. Add a folder using the name of the desired slug. You take these steps locally, or use the [Github web interface](https://github.com/KirstieJane/STEMMRoleModels/wiki/Creating-new-folders-in-GitHub-repository-via-the-browser).
 3. Use [markdown](https://guides.github.com/features/mastering-markdown/) to build an `index.md` file. See the [front-end](https://omnifact.org) for the Rules of Engagement.
 4. Submit a PR.
 5. The editorial process will happen through standard GitHub mechanisms.
