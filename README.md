@@ -9,3 +9,5 @@ If you're looking for the front-end, it can be found at [OmniFact.org](https://o
 4. Submit a PR.
 5. The editorial process will happen through standard GitHub mechanisms.
 6. If accepted, it be merged into `master` and go live!
+
+**Posts are not attributed to an author and can be modified at any time through the source code revision process.**
