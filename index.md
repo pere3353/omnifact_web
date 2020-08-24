@@ -1,4 +1,4 @@
-More and more people are succombing to disinformation campaigns on social media. Watching friends and family fall victim to this manipulation is heartbreaking. **We are here to support you with an open-source, collaborative media kit.**
+More and more people are succumbing to disinformation campaigns on social media. Watching friends and family fall victim to this manipulation is heartbreaking. **We are here to support you with an open-source, collaborative media kit.**
 
 ### Get Involved
 1. **Contribute and/or modify a post** by making a PR on GitHub. See the [README](https://github.com/OmniFact/omnifact_web) for details. We aren't non-partisan, but we'll consider any well-reasoned argument.
