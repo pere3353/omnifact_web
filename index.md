@@ -1,8 +1,9 @@
-**More and more people are succombing to disinformation campaigns on social media. Watching friends and family fall victim to this manipulation is heartbreaking.**
+More and more people are succombing to disinformation campaigns on social media. Watching friends and family fall victim to this manipulation is heartbreaking. **We are here to support you.**
 
 ### Get Involved
-- Visit Github to create a new post, or modify one that's already in the catalog.
-- Use these posts to serve as a starting place for your outreach. Feel free to make changes. You're welcome to attribute the source, but it's not necessary.
+1. **Contribute and/or modify a post** by making a PR on GitHub. See the [README](https://github.com/OmniFact/omnifact_web) for details. We aren't non-partisan, but we'll consider any well-reasoned argument.
+2. **Share these posts with your friends.** Feel free to make changes. You're welcome to attribute the source, but it's not necessary.
+3. **Spread the word** so we can build this community.
 
 ### Rules of Engagement
 - Be respectful.
